@@ -1,2 +1,1 @@
-https://docs.google.com/document/d/1vQgd6CC81od_urcIhyvCEQI96S0O-G45yaVL9_MxOj4/edit
-https://docs.google.com/document/d/1NurWSpz2x-iyLNg0qvBFAXtMNx7Wn5nyHcKDB2K2BS0/edit
+https://drive.google.com/drive/folders/1--DuY2HNx2AgqE7pWLm9TThrvt1r27s9?dmr=1&ec=wgc-drive-globalnav-goto
